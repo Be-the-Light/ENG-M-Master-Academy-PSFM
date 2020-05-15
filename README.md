@@ -9,5 +9,4 @@
  | [M] | Leadership of Bible Study Groups. | Herman Harrell Horne. | 1912 | ENG
  | [M] | Children's Meetings, and How to Conduct Them. | Lucy J. Rider and Nellie M. Carman, introduction Bishop J. H. Vincent. |  | ENG
  | [M] | Booklet Letter Guide for Workers. | Prepared Daniel Sloan. |  | ENG
- | [M] | Kindergarten Lessons for Church Sunday Schools. | Sunday School Commission. | 1911 | ENG
  | [M] | Principles of Religious Education. | Sunday School Commission. | 1900 | ENG
